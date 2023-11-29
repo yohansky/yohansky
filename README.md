@@ -19,6 +19,4 @@
 - 🤔 I’m looking for help with Trainer
 - 😄 Pronouns: He/Him
 
-I am a bachelor in computer engineering, currently i am Talent at Pijar Camp powered by telkom
-
 
